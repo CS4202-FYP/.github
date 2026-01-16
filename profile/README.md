@@ -1,1 +1,1 @@
-You have been directed to a project that is currently available in a Private GitHub Organization repositories. 🔐
+You have been directed to a project that is currently available in Private GitHub Organization repositories. 🔐
